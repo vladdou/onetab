@@ -1,2 +1,2 @@
-The first step to system holdin oll the bookmarks
+The first step to system holding all the bookmarks
 
